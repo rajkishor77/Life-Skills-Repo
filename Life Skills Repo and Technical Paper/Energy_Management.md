@@ -1,4 +1,4 @@
-# Energy Management - Detailed Answers
+# Energy Management 
 
 ## Question 1: What are the activities you do that make you relax - Calm quadrant?  
 The Calm quadrant is about peace, balance, and relaxation. Activities that bring calmness are important for recovery and mental health. Some relaxing activities are:  
